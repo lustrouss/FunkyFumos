@@ -1,2 +1,2 @@
 Just Do not
-#GG EZ
+GG EZ
